@@ -71,3 +71,5 @@ ART BY @UNCTHREATHY!^
  <p align="center">
  <img align="center" src="https://github.com/azpyiel/Arts-../blob/e676c736405499b539c35cff0c0e9961a51efd5f/Untitled20_20260427180513.png">
       <br/>
+
+i swear i have more but i cant be bothered to put it here sighs
